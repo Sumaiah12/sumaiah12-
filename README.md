@@ -1,4 +1,6 @@
-# sumaiah12-# Hi there, I'm Sumaiya Al-Mutairi 👋 
+# sumaiah12-# 
+
+Hi there, I'm Sumaiya Al-Mutairi 👋 
 
 ### PR & Marketing Specialist | Campaigns & Content Strategy
 A high-achieving Public Relations graduate from **King Saud University** with a passion for data-driven marketing and digital branding.
